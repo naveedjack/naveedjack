@@ -1,5 +1,5 @@
-  # 💫 Hi 👋 I'm Naveed Ahmed      
-  **Aspiring Software Engineer||Web Developer||AI-ML Enthusiast**
+# 💫 Hi 👋 I'm Naveed Ahmed      
+**Aspiring Software Engineer||Web Developer||AI-ML Enthusiast**
 
 Email ✉️ **naveedahmedn976@gmail.com** For Collaboration/Project or Anything Else.
 
